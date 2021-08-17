@@ -1,0 +1,2 @@
+- I would like to call myself an amateur photographer at some point, though I don't believe I am quite there yet. 
+- Either way [here is the link to my instagram.](https://www.instagram.com/photos.from.nate/)
